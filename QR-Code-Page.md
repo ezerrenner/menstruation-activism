@@ -39,6 +39,7 @@ Freidenfelds, L. (2009). The modern period: Menstruation in twentieth-century Am
 If You Can’t Afford Tampons, What Do You Do? | HuffPost Impact. (n.d.). Retrieved October 9, 2021, from https://www.huffpost.com/entry/if-you-cant-afford-tampons-what-do-you-do_b_5352396
 
 Johnston-Robledo, I., & Chrisler, J. (2013). The Menstrual Mark: Menstruation as Social Stigma. Sex Roles, 68(1–2), 9–18. https://doi.org/10.1007/s11199-011-0052-z
+
 Maloney, C. B. (2017, May 5). H.R.2379 - 115th Congress (2017-2018): Robin Danielson Feminine Hygiene Product Safety Act of 2017 (2017/2018) [Legislation]. https://www.congress.gov/bill/115th-congress/house-bill/2379
 
 Menstrual Equity. (n.d.). Urban Libraries Council. Retrieved October 2, 2021, from https://www.urbanlibraries.org/innovations/menstrual-equity
@@ -54,8 +55,6 @@ Reilly, B. (2019). Wisconsin Capitol, state office buildings now offer free mens
 Sayers, J. G., & Jones, D. (2015). Truth Scribbled in Blood: Women’s Work, Menstruation and Poetry. Gender, Work & Organization, 22(2), 94–111. https://doi.org/10.1111/gwao.12059
 
 Schizer, M. W. (2021). Q&A: Anita Diamant. Newsweek Global, 176(14), 10–11.
-
-Scranton, A. (n.d.). Chem Fatale: Potential Health Effects of Toxic Chemicals in Feminine Care Products. 24.
 
 She put newspaper in her underwear because her school charged for pads. A new law ends that | The Fresno Bee. (n.d.). Retrieved October 9, 2021, from https://www.fresnobee.com/news/local/education-lab/article180114836.html
 
